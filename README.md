@@ -1,2 +1,2 @@
-# jineng
-haoyongdejineng
+# 技能名称，U型思考
+作者：龙虾纪元。世博&舒舒
